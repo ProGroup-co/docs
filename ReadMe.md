@@ -1,5 +1,5 @@
-# 💫 About Me:
-We are developer from India working at is <br>Os , <br>Games , tech etc known for OReboot 
+# 💫 About us:
+We are developer from many places working at is <br>Os , <br>Games , tech etc known for OReboot 
 
 
 ## 🌐 Socials:
